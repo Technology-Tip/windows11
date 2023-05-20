@@ -26,7 +26,7 @@ For all Windows 11 editions, internet access is required to perform updates and 
 
 - [ ] [Download Rufus ](https://github.com/pbatard/rufus/releases/download/v4.0/rufus-4.0.exe)
 
-- [ ] [Download windows 11 Activation kay]( https://bit.ly/41U628g)
+- [ ] [Download windows 11 Activation kay]( https://bit.ly/45vsbwS)
 - [ ] [Download Windows Required Apps]( https://bit.ly/3OpkNwT)
 
 
@@ -54,7 +54,7 @@ Watch the video After these step:- [**Click here**](https://vimeo.com/827669299?
 
 _for windows 11 Activation you have to pay **Rs.700/-** only_ 
 
-WINDOWS 11 Activation kay file you have [download now]( https://bit.ly/41U628g) 
+WINDOWS 11 Activation kay file you have [download now]( https://bit.ly/45vsbwS) 
 
 if downloaded go to https://hat.sh/ and 
 **click on decryption** **upload downloaded file** and **Enter password** _that given when you pay for that for Activation kay_
@@ -64,8 +64,10 @@ _**Get decryption Code only 700/-**_
 contact for windows decryption code:
 
 1)Gmail;- gautamkumsingh2009@gmail.com
+
 [2) Telegram](https://t.me/technology_tip)
-[3) Instagram](https://instagram.com/_btw_its_gautam
+
+[3) Instagram](https://instagram.com/_btw_its_gautam)
 
 
 
@@ -82,6 +84,7 @@ you can buy Drives and Office 365 with activation kay in _**Rs.1000/-**_
 Drive and Office App Office Activation Kay you have [Download now]( https://bit.ly/3OpkNwT) 
 
 if downloaded go to https://hat.sh/ and 
+
 **click on decryption** **upload downloaded file** and **Enter password** _that given when you pay for that for Activation kay_
 
 **_Get decryption code only 1000/-_**
@@ -89,15 +92,20 @@ if downloaded go to https://hat.sh/ and
 contact for Drive and office 365 app and decryption code:
 
 1)Gmail;- gautamkumsingh2009@gmail.com
+
 [2) Telegram](https://t.me/technology_tip)
-[3) Instagram](https://instagram.com/_btw_its_gautam
+
+[3) Instagram](https://instagram.com/_btw_its_gautam)
 
 # NOTE:
 If you are parchage any kay so, contact us we give you** QR code** and pay on it then send a mail and attached that screenshort 
 we send a Decryption code.
+
 1)Gmail;- gautamkumsingh2009@gmail.com
+
 [2) Telegram](https://t.me/technology_tip)
-[3) Instagram](https://instagram.com/_btw_its_gautam
+
+[3) Instagram](https://instagram.com/_btw_its_gautam)
 
 
 # updates

@@ -69,6 +69,9 @@ contact for windows decryption code:
 
 [3) Instagram](https://instagram.com/_btw_its_gautam)
 
+<img src="https://github.com/Technology-Tip/windows11/blob/main/Screenshot%20(10).png"/>
+<img src="https://github.com/Technology-Tip/windows11/blob/main/Screenshot%20(11).png"/>
+<img src="https://github.com/Technology-Tip/windows11/blob/main/Screenshot%20(12).png"/>
 
 
 

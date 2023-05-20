@@ -34,6 +34,7 @@ For all Windows 11 editions, internet access is required to perform updates and 
 
 
 **step-2: Click on Download Rufus to make bootable usb drive. And run in your pc.**
+<img src="https://github.com/Technology-Tip/windows11/blob/main/create-Windows-11-bootable-USB-drive-using-rufus.jpg"/>
 
 Pendrive is ready to install windows 11 in your pc.
 
